@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... ;SourceData_internalData_primaryData;MySglData
 - 🌱 I’m currently learning ...MyQsl Data Directory source Data internal Data
 - 💞️ I’m looking to collaborate on ... Data Analysis
-- 📫 How to reach me ... email;tvernon887@gmail.com
+- 📫 How to reach me ... email;tvernon887@gmail.com/tvernon5511@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
